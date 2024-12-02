@@ -2,9 +2,9 @@
 黑料吃瓜网-吃瓜网-黑料社区-黑料社发布-51杏吧-黑料社app官网入口下载
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg10/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg10/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
